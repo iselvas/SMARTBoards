@@ -1,6 +1,6 @@
-Technology is an ever changing medium in the world we live in today. Schools across the world are increasingly integrating technology into the classroom each day. The use of technology is both beneficial for the students and the teacher. One source of technology that has proved to be beneficial in the classroom is a <a href="https://www.eptecstore.com/">Smart Board</a>.
+Technology is an ever changing medium in the world we live in today. Schools across the world are increasingly integrating technology into the classroom each day. The use of technology is both beneficial for the students and the teacher. One source of technology that has proved to be beneficial in the classroom is a <a href="https://www.eptecstore.com/" target="_blank" rel="noopener">Smart Board</a>.
 
-The goal of integrating a <a href="https://www.eptecstore.com/interactive-display/">Smart Board</a> into the classroom is to improve student achievement and increase their technology literacy. This can be done with both the teacher and the students' efforts.
+The goal of integrating a <a href="https://www.eptecstore.com/interactive-display/" target="_blank" rel="noopener">Smart Board</a> into the classroom is to improve student achievement and increase their technology literacy. This can be done with both the teacher and the students' efforts.
 <h2>Benefits of Smart Boards</h2>
 <ul>
  	<li style="list-style-type: none;">
@@ -24,4 +24,4 @@ Technology is found everywhere in this world so it only seems right to begin inc
 
 &nbsp;
 
-For demo and product enquiry: <a href="https://www.eptecstore.com/interactive-display/">https://www.eptecstore.com/interactive-display/</a>
+For demo and product enquiry: <a href="https://www.eptecstore.com/interactive-display/" target="_blank" rel="noopener">https://www.eptecstore.com/interactive-display/</a>
